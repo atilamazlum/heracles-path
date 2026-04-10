@@ -1,4 +1,4 @@
-# ⚡ Heracles Path
+Heracles Path
 
 **Myth · Psychology · Adler**
 
